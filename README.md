@@ -1,2 +1,6 @@
-# Glam-and-Glow-Corvallis-
-Step into a world of elegance and transformation at Glam and Glow Salon, Corvallis' premier destination for all your beauty needs. 
+![image](https://github.com/user-attachments/assets/afabd41f-3df7-459f-ac45-92c5dff8745a)Step into a world of elegance and transformation at Glam and Glow Salon, Corvallis' premier destination for all your beauty needs. Our skilled team of stylists and beauty experts is dedicated to delivering exceptional service in a chic, modern environment. Whether you’re looking for a stunning haircut, a vibrant new color, or a complete makeover, we offer personalized treatments tailored to your unique style and preferences.
+
+At Glam and Glow, we believe that beauty is about feeling confident and radiant. Our salon features a range of services including precision haircuts, bespoke color applications, <a href="https://ggsaloncorvallis.com/waxing/" target="_blank">Brazilian wax Corvallis</a>
+, and specialized treatments designed to enhance your natural glow. We use only the highest quality products to ensure that every visit leaves you looking and feeling your best.
+
+Indulge in a relaxing experience with our attentive staff who are committed to providing outstanding service and making every visit memorable. Whether it's a routine trim or a special occasion, Glam and Glow Salon is here to help you shine.
